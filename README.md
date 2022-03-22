@@ -1,0 +1,2 @@
+# amulet
+cha amulet thailand 
